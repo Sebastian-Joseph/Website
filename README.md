@@ -1,4 +1,4 @@
-# Welcome rats
+# Welcome Children of Seb :woozy_face:
 
 ## Learn
 
